@@ -1,1 +1,1 @@
-I love the Techie world
+Tech is the new oil well.
